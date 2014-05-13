@@ -1,0 +1,1 @@
+Massagecoin (MSGC)
